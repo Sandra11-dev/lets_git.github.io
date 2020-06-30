@@ -9,3 +9,9 @@ Archie Leach ist der Anwalt des Chefganoven George, der gerade einen millionensc
 * schon lange verheiratet
 * lieblose Ehefrau
 
+
+Archie Leach am Ende des Films zu Wanda:
+
+>  Wenn Du mich betruegst, bringe ich Dich um.
+
+
